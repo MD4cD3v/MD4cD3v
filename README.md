@@ -1,8 +1,21 @@
 ### Hi EVERYONE 👋
 
 **MD4cD3v/MD4cD3v** 
+
+
+
 FULL NAME:DINH MANH DUC
+
+
+
 IM STUDENT AND 15 YEAR OLD
+
+
+
 CODER LỎ
+
+
+
+
 VINH YEN , VINH PHUC, VIETNAM
 
